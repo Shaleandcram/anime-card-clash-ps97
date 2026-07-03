@@ -1,4 +1,4 @@
-#  
+#  secure anime card clash Scripts offers the most advanced anime card clash Script, with god mode and auto-upgrade. Perfect for dominating any match.
 
 
 
